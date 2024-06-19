@@ -1,4 +1,4 @@
 - 👋 Hi, I’m Jai Patel 
 - 👀 I’m interested in Computer and Programming Languages.
-- 🌱 I’m currently finishing my junior year.
+- 🌱 I’m currently a senior in high school.
 - 📫 How to reach me +1 (251) 721-0464
